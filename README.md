@@ -1,0 +1,4 @@
+- 👀 Hello, I am just lurking here 👀
+- 🛠️ 🗺️ I am building a navigator 🛠️ 🗺️
+- 🔥 💸 I am on that grind for that bread 🍞 🔥 📈
+- 💪 Built different 🤖
